@@ -1,4 +1,4 @@
-
+Enhance Bartender for macOS with Bartender for macOS professional Tool: screenshot-tools & window-management, the #1 tool. Includes screenshot-tools and window-management for a
 
 
 
